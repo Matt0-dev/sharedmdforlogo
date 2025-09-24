@@ -1,2 +1,0 @@
-# sharedmdforlogo
-logo shit
