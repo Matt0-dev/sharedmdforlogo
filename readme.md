@@ -9,7 +9,7 @@
 - [Tafco](https://tafcowalkins.com)
 - [All Pro Coolers](https://allprocoolers.com/)
 - [Everidge](https://everidge.com/)
-- [Bally Refrigerated Boxes](https://ballyrefboxes.com/)
+- [Bally Refrigerated Boxes](http://ballyrefboxes.com/)
 - [Norlake](https://norlake.com/)
 - [Hussmann](https://www.hussmann.com/)
 - [Miami Walk-In Coolers](https://miamiwalkincoolers.com/)
