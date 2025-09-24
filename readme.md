@@ -4,7 +4,7 @@
 - [U.S. Cooler](https://www.uscooler.com/)
 - [Bush Refrigeration](https://bushrefrigeration.com/)
 - [AmeriKooler](https://amerikooler.com/)
-- [Mr. Winter](https://mrwinterinc.com/)
+- [Mr. Winter](https://mrwinterinc.net/)
 - [SRC Refrigeration](https://www.srcrefrigeration.com/)
 - [Tafco](https://tafcowalkins.com)
 - [All Pro Coolers](https://allprocoolers.com/)
