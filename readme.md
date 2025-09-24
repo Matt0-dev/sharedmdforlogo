@@ -6,7 +6,7 @@
 - [AmeriKooler](https://amerikooler.com/)
 - [Mr. Winter](https://mrwinterinc.com/)
 - [SRC Refrigeration](https://www.srcrefrigeration.com/)
-- [Tafco](https://www.tafcoequipment.com/)
+- [Tafco](https://tafcowalkins.com)
 - [All Pro Coolers](https://allprocoolers.com/)
 - [Everidge](https://everidge.com/)
 - [Bally Refrigerated Boxes](https://ballyrefboxes.com/)
