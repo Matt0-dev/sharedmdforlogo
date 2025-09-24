@@ -1,20 +1,21 @@
 **List of competitors**
 
-- arctic walk-in coolers and freezers
-- u.s cooler
-- bush refrigeration 
-- americool
-- mr winter
-- src refrigeration 
--  tafco
-- all pro coolers 
-- everidge
-- bally
-- norlake
-- hussmann 
-- miami walkin coolers 
-- kps global 
-- dade coolers 
+- [Arctic Walk-In Coolers & Freezers](https://arcticwalkins.com/)
+- [U.S. Cooler](https://www.uscooler.com/)
+- [Bush Refrigeration](https://bushrefrigeration.com/)
+- [AmeriKooler](https://amerikooler.com/)
+- [Mr. Winter](https://mrwinterinc.com/)
+- [SRC Refrigeration](https://www.srcrefrigeration.com/)
+- [Tafco](https://www.tafcoequipment.com/)
+- [All Pro Coolers](https://allprocoolers.com/)
+- [Everidge](https://everidge.com/)
+- [Bally Refrigerated Boxes](https://ballyrefboxes.com/)
+- [Norlake](https://norlake.com/)
+- [Hussmann](https://www.hussmann.com/)
+- [Miami Walk-In Coolers](https://miamiwalkincoolers.com/)
+- [KPS Global](https://www.kpsglobal.com/)
+- [Dade Coolers](https://www.dadecoolers.com/)
+
 
 
 **list of words**
